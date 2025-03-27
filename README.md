@@ -1,3 +1,3 @@
 # apnacollege-demo
 this is mine 
-author - RAJDEEP SINGH TOMARR
+author - RAJDEEP SINGH (m)
